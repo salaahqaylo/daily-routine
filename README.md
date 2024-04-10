@@ -7,7 +7,8 @@ I would like to share with you my daily routine, which will inspire you and whic
 6:50 AM -  Go work and Listen on the way podcast English 
 7:00 AM - Start working 
 7:00 AM to 12 AM I work 
-           Note: 
+           
+Note: 
 This month we are fasting. We don't have time to eat. Only after sunset.
          JOB DETAILS :
 Selling household items. Such as doors, windows, and bathroom toiletries. And everything that is built on the house.
